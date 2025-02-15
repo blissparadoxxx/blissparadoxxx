@@ -49,5 +49,6 @@ In addition to cybersecurity, I am a **digital forensics expert** specializing i
 Let me help you secure your digital world, recover lost assets, and navigate complex cyber threats. Whether you’re dealing with a personal data loss or a business-critical security breach, I bring the skills and expertise necessary to safeguard your future.
 
 Email:Blissparadoxx@gmail.com
+WhatsApp:‪+1 (609) 425‑9715‬
 
 If you're ready to take the next step in securing your data or retrieving lost information, feel free to reach out!
